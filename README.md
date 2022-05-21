@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @softwareconner
+- 👀 I’m interested in coding
+- 📫 How to reach me:
+- discord: hckdconner#6896
